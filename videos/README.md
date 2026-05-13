@@ -3,3 +3,4 @@
 ----
 
 - 1 - 🎬 [PROJECT-HAIL-MARY-(2026)-MOVIE-REACTION-–-THIS-IS-SCI-FI-DONE-RIGHT!-–-FIRST-TIME-WATCHING-–-REVIEW](https://github.com/arylih/Ourtube/tree/main/videos/PROJECT-HAIL-MARY-%282026%29-MOVIE-REACTION-%E2%80%93-THIS-IS-SCI-FI-DONE-RIGHT%21-%E2%80%93-FIRST-TIME-WATCHING-%E2%80%93-REVIEW)
+- 2 - 🎬 [Project-Hail-Mary-｜-AMAZE-AMAZE-AMAZE!!!-｜-FIRST-TIME-WATCHING-｜-Reaction](https://github.com/arylih/Ourtube/tree/main/videos/Project-Hail-Mary-%EF%BD%9C-AMAZE-AMAZE-AMAZE%21%21%21-%EF%BD%9C-FIRST-TIME-WATCHING-%EF%BD%9C-Reaction)
